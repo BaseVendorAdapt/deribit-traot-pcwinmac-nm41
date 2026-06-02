@@ -1,4 +1,4 @@
-# 
+# Actualizado deribit trading bot scripts para Mac OS | Mejor deribit trading bot scripts para PC Windows. Con generación de señales y escaneo de arbitraje — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
